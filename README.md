@@ -21,7 +21,7 @@ Whether you need a brand-new website, an automated tool, or a complete project l
 ## 🔗 Connect With Us
 Join our community, check out our latest updates, or place an order through our official channels:
 
-* **💬 Discord Server:** [Discord](https://discord.gg/psq6P3fVvN)
+* **💬 Discord Server:** [Discord](https://discord.gg/nGyQZZCScp)
 * **📸 Instagram:** [Instagram](https://www.instagram.com/x410m1s0/)
 * **🎵 TikTok:** [TikTok](https://www.tiktok.com/@x410m1s0/)
 
